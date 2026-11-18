@@ -1,2 +1,2 @@
 # L2F
-League2Fans
+Welcome on L2Fclub (League2Fans club).
